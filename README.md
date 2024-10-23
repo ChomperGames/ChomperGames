@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ChomperGames
+- 👀 I’m interested in anything littrolly anything
+- 🌱 I’m currently learning anything and everthing i want to have as much noladge as possible
+- 💞️ I’m looking to collaborate on anything want help want to teach want a freind im here to help
+- 📫 How to reach me prolly my email calebdurga@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: im insanly open minded at times but i like to chalenge people 
